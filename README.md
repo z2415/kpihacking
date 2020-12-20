@@ -1,3 +1,0 @@
-# kopihacking
-ZAINUL ISLAH
-
